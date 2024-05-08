@@ -1,0 +1,4 @@
+- 👋 Hola! Soy Federico Menéndez
+- Trabajo en YPF S.A.
+- 👀 Soy un entusiasta de la tecnologia
+- 🌱 A veces gano, otras aprendo
